@@ -1,0 +1,1 @@
+This is a story written in collaboration between Derek and Diana. It has taken a total of 2 minutes to write. 
